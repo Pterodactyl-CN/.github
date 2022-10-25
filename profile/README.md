@@ -3,6 +3,8 @@
 
 本组织官方开黑啦交流频道：https://kook.top/JlXuk6
 
+DoDo群 翼龙中国社区 https://imdodo.com/s/173865
+
 我们观察到,有有一些人建立了另一个组织,他们是 [翼龙-中国](https://github.com/pterodactyl-china). 我们很高兴能看到有新的社区建立.  
 为了避免资源浪费和重复, 本组织不会推出以下内容
 
